@@ -1,1 +1,1 @@
-![Kharkiv, Ukraine](/doc_2020-07-11_22-00-57.mp4)
+![Kharkiv, Ukraine](/1ec1e400510dadf304ba5.gif)
